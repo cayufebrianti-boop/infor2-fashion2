@@ -1,1 +1,0 @@
-# infor2-fashion2
